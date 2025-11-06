@@ -1,0 +1,2 @@
+# Tugas2_Rhena_Rani_Nidia_Annisa_Fitri_Devina_ChatGpt_XII3
+Tugas 2 ChatGpt web
